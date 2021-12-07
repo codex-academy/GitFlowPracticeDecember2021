@@ -1,0 +1,1 @@
+# if bald people worked at a resturant would they still need to wear a hairnet?
